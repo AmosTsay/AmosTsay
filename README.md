@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AmosTsay
+- 👋 Hi, I’m @LambertTsay
 - 👀 I’m interested in many things like music,film,reading,football,mount-sea and etc.
 - 🌱 I’m currently listening to kinds of english music especially classical ones.
 - 💞️ I’m looking to collaborate on the attitude towards life.
